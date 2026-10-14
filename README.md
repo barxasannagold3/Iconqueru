@@ -221,4 +221,4 @@ IConquerU is available as a full free version with all features and updates incl
 Download IConquerU today and embark on your heroic journey! Enjoy epic adventures, strategic battles, and a vibrant community—all in one game!
 
 ---
-**Last updated:** 2026-10-14 05:44:52 UTC
+**Last updated:** 2026-10-14 11:04:36 UTC
